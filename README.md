@@ -118,3 +118,30 @@ https://www.dropbox.com/scl/fi/q9pc65gh282p4didqzneu/task-20-20hulix-20edit-20AB
 
 
 https://www.dropbox.com/scl/fi/u4rzv69icso0z5nbupgwp/tlc200k.zip?rlkey=6sw90w71ol91knsticvq9hqq7&dl=1
+
+
+
+
+
+سيرا مخصر
+
+
+https://www.mediafire.com/file/eu5cxtwyz3m0a1a/%E2%80%8E%E2%81%A82015_%28تجمير%29%E2%81%A9.zip/file
+
+
+
+
+ كامري 2018-2024
+
+
+
+https://www.mediafire.com/file/lfqkbe7o7azol0c/M7_camry18_24.zip/file
+
+
+
+
+
+ماب توكسيك
+
+
+

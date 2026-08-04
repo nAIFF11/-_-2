@@ -186,7 +186,7 @@ https://www.mediafire.com/file/rhjcmxzmc5w48uh/accentkenemation21ver.zip/file
 
 
 
-لاند لكوزر BkSL
+كامري 2024 هايبرد
 
 
 
@@ -195,7 +195,7 @@ https://www.mediafire.com/file/rhjcmxzmc5w48uh/accentkenemation21ver.zip/file
 
 
 
-https://www.mediafire.com/file/a6jd7b0eryftxcp/Toyota+Land+Cruiser+2020.zip/file
+https://www.mediafire.com/file/f9svuxk6bvccdta/CAMRY_LA9_7T.zip/file
 
 
 

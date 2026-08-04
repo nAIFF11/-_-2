@@ -225,7 +225,7 @@ https://www.mediafire.com/file/bt3wru09lz544ni/LX570_2017_KHwylD.zip
 
 
 
-kia k8 ~KBsL~
+kia k8 ~BKsŁ~
 
 
 https://www.mediafire.com/file/efrwja5jj1uiy2k/KIA+K8+v0.1.zip/file

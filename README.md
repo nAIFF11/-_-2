@@ -195,7 +195,7 @@ https://www.mediafire.com/file/rhjcmxzmc5w48uh/accentkenemation21ver.zip/file
 
 
 
-https://www.mediafire.com/file/76jo60pcwlezm4k/Land+Cruiser+2020+BKSL.zip/file
+https://www.mediafire.com/file/a6jd7b0eryftxcp/Toyota+Land+Cruiser+2020.zip/file
 
 
 

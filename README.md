@@ -219,3 +219,13 @@ https://www.mediafire.com/file/brd3k3d5j5jwhuq/BKsL_ST+70H+2.zip/file
 
 
 https://www.mediafire.com/file/bt3wru09lz544ni/LX570_2017_KHwylD.zip
+
+
+
+
+
+
+kia k8 ~KBsL~
+
+
+https://www.mediafire.com/file/efrwja5jj1uiy2k/KIA+K8+v0.1.zip/file

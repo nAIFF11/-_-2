@@ -245,3 +245,19 @@ https://www.mediafire.com/file/efrwja5jj1uiy2k/KIA+K8+v0.1.zip/file
 
 
 https://www.mediafire.com/file/57161szk5c142tz/COROLLA.zip/file
+
+
+
+
+
+
+
+
+جيب لكزسس من موديل 2013 ~2021
+
+
+
+
+
+
+https://www.mediafire.com/file/35n7y6l4rzs3qk4/L5W_LX570.zip/file

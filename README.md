@@ -230,3 +230,18 @@ kia k8 ~BKsŁ~
 
 
 https://www.mediafire.com/file/efrwja5jj1uiy2k/KIA+K8+v0.1.zip/file
+
+
+
+
+
+
+
+
+
+كورلا 2020 ستاندر
+
+
+
+
+https://www.mediafire.com/file/57161szk5c142tz/COROLLA.zip/file

@@ -335,17 +335,17 @@ https://www.mediafire.com/file/3n6g6ss7x81333v/taurus_sh9_sko0by_2022.zip/file
 
 
 
+ربع موديل 2024
+
+
+ 
+
+
+https://www.mediafire.com/file/66bcs8oa69e1tyg/Toyota_Land_Cruiser_j70_2024_2025_Badr_AN_V2.zip/file
 
 
 
-ربع 
 
-
-
-
-
-
-https://www.mediafire.com/file/vhm2v4r2pfn17j3/Toyota+land+cruiser+j70+2000-2023.zip/file
 
 
 

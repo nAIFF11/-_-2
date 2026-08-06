@@ -386,6 +386,12 @@ https://www.mediafire.com/file/dmh2ry94vax36ta/M7_cruze12.zip/file
 
 
 
+كورلا 2020
+
+
+
+https://www.mediafire.com/file/gq9pmo6r48mk7k1/M7+corolla+2020.zip/file
+
 
 
 

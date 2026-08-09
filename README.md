@@ -468,4 +468,12 @@ https://www.dropbox.com/scl/fi/pccick6y5899ibuxtrwni/Land_Cruiser_j70_2023_KHwyl
 https://www.mediafire.com/file/iwrny46i7y6y5fo/M7+corolla+06-03.zip/file
 
 
+F-150 مع بانشي
+
+
+
+
+
+
+https://www.mediafire.com/file/1ta422lp7okp38l/BoDuaij_F150.zip/file
 

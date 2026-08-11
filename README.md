@@ -5,6 +5,17 @@
 
 
 
+سكويا
+
+
+
+https://www.mediafire.com/file/cg9ajwozj6yupbd/sequoia+(2).zip/file
+
+
+
+
+
+
 
 لاند 2020
 
@@ -14,7 +25,7 @@ https://www.mediafire.com/file/ft5j6efw7h1i1pa/LC200+Custom+Beamers.zip/file
 
 
 
-ياترول 2020
+باترول 2020
 
 
 

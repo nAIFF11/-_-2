@@ -5,7 +5,14 @@
 
 
 
-اكورد 1٣
+اكورد1٧
+
+
+https://www.mediafire.com/file/vn6cxd8zma9h052/accord_2017_sh9.zip/file
+
+
+
+الموتر ماله صور ترا(اكورد 1٣
 
 
 https://www.mediafire.com/file/pu3g73e7aqiwo6t/m7+accord+8-12.zip/file

@@ -3,6 +3,15 @@
 ماراح اسامح من ينشر الروابط بدون ما يدفع حقها
 
 
+بيقاس
+
+
+
+
+https://www.dropbox.com/scl/fi/ro93x50ytdanyjr77hz31/pegas_2018_meto.zip?rlkey=8u5rmrtsjjw5pntwjh17sr0mp&st=t52twe79&dl=1
+
+
+
 
 
 اكورد1٧

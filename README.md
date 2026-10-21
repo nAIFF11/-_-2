@@ -3,9 +3,9 @@
 ماراح اسامح من ينشر الروابط بدون ما يدفع حقها
 
 
-اكورد1٢
+تشارجر نياكل
 
-https://www.mediafire.com/file/91fm8yzopplr02q/m7+accord+8-12.zip/file
+https://www.mediafire.com/file/7z8yz2296felmyr/m7+charger+v2.zip/file
 
 
 الانترا2017

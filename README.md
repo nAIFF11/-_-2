@@ -46,8 +46,8 @@ https://www.mediafire.com/file/8se2eqpzffptxoi/alc_fuso+(1).zip/file
 لكزسس خويلد 
 
 
-https://www.dropbox.com/scl/fi/mew18dbd1a0w4c3rng3ri/LX570_2017_KHwylD.zip?rlkey=iwuabj2ilo85zhd5jywcyd9ft&st=yel1pqm8&dl=1
 
+https://www.mediafire.com/file/uaniqoqlxqzsglo/LX570_2017_KHwylD.zip/file
 
 
 

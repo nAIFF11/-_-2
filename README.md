@@ -11,7 +11,7 @@
 لاند كلوز حصري نادر
 
 
-https://www.dropbox.com/scl/fi/ws3cfxrfwzv5gjki62efh/LC300_2022_Ray.zip?rlkey=124nkx9uqx2hwayskorcuwldj&st=l1tmshyy&dl=0
+https://www.mediafire.com/file/pzdkv24sidsfqwg/LC300_2022_Ray.zip/file
 
 
 كيا5[2022]

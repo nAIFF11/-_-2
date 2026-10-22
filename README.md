@@ -4,6 +4,12 @@
 
 <بعيوني ابو قحط>
 
+
+الانترا23/24
+
+https://www.mediafire.com/file/d50bz1wm4gkrbmr/Hyundai_Elantra_2025-2024.zip/file
+
+
 تاهو2023
 
 https://www.mediafire.com/file/1d9zv6vgdw1k01l/Chevrolet+Tahoe+Surburban_modland.zip/file

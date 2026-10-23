@@ -265,7 +265,7 @@ https://www.dropbox.com/scl/fi/mew18dbd1a0w4c3rng3ri/LX570_2017_KHwylD.zip?rlkey
 https://www.dropbox.com/scl/fi/ylnx8j9g795vp7ay35fzj/Lexus-2003-2007-NJM.zip?rlkey=zc5buhiy3251zo9dr0m88w9bj&st=mv1jbt39&dl=1
 
 
-لَكْزُس بَدَان
+لَكْزُس سيدان حشمه
 
 https://www.dropbox.com/scl/fi/izteou21ad6aam9bo3j8e/BdRaN_Lx570.zip?rlkey=6yt8af9tjb06yzzyfakb0k1wb&st=gm60fp8c&dl=1
 

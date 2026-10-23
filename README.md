@@ -5,7 +5,7 @@
 <بعيوني ابو قحط>
 
 
-وتحت(فكسار جكسار لاند العادي)
+(فكسار جكسار لاند العادي)
 
 https://www.dropbox.com/scl/fi/xowd6cflro22mg6qfdm65/1.zip?rlkey=2n4oksbmdzyex93adhe68s4xg&st=oc05ih9j&dl=1
 

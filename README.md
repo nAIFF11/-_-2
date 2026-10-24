@@ -10,9 +10,11 @@
 https://www.mediafire.com/file/yumpc8f46nhdpf7/ToyoyaRZ.zip/file
 
 
+اكسنت25 لوكات
 
 
-https://www.mediafire.com/file/92yc79wpo9kcwir/%25D8%25A8%25D9%2583%25D8%25B3%25D9%2584.zip/file
+https://www.mediafire.com/file/4gay0xcj9myhq93/accent_24-25_SH9_V2.zip/file
+
 
 
 

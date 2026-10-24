@@ -19,7 +19,7 @@ https://www.mediafire.com/file/ps8tyi2t0d9p3xk/toxic_by_f33_V1.zip/file%7D?actio
 ماب الجرادية
 
 
-https://www.mediafire.com/file/uvi4gt6bu8rfa7v/Al_Jaradiah.zip/file
+https://www.dropbox.com/scl/fi/p0vouxxx9u85vkmuxqfbz/Al_Jaradiah_Riyadh.zip?rlkey=c51wirq5mvxj4238rglrj0j8c&st=vqrbhfez&dl=0
 
 
  

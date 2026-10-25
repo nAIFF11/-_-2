@@ -4,6 +4,21 @@
 
 <بعيوني ابو قحط>
 
+
+اكورد12 
+
+https://www.mediafire.com/file/c68qatt94pv8fdb/m7+accord+8-12.zip/file
+
+
+
+كدنزا خويلد
+
+
+https://www.mediafire.com/file/ccq8bpvix9cb6ae/N47+CADENZA.zip/file
+
+
+
+
 ربع بوليسي
 
 

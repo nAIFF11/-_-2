@@ -5,6 +5,10 @@
     <بعيوني ابو قحط>
 
 
+هايلكس لوكات
+
+https://www.mediafire.com/file/gzoz3wxbzokpvzj/feature_mods_hilux+(1).zip/file
+
 بهباني
 
 https://www.mediafire.com/file/30dp21gioshvpua/GMC+CLASSIC.zip/file
